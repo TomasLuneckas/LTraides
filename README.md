@@ -1,1 +1,1 @@
-"Ranka ra’yt÷ lietuvi’k÷ raidÿi÷ rinkinys, skirtas simboli÷ atpaÿinimo modeliams apmokyti." 
+Ranka ra≈°yt≈≥ lietuvi≈°k≈≥ raid≈æi≈≥ rinkinys, skirtas simboli≈≥ atpa≈æinimo modeliams apmokyti.
